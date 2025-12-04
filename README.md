@@ -6,3 +6,6 @@ Sergio Andrés Zapata Gómez
 CC. 1007291146
 
 Ingeniería mecánica
+
+
+Video entrega final: https://youtu.be/nN64bgNs34M
